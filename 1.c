@@ -10,5 +10,4 @@ hi
  change
 
 
-amiya commit
 xxxxxx
