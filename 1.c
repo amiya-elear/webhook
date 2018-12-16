@@ -1,7 +1,6 @@
-asdbakjhsd
-amiya 2
-bdcbsjhdbchjbdj h kbsvbwkvb
-asdbakj
+
+bsjhdbchjbdj h kbsvbwkvb
+kj
 asdbakj
 dhvskdhvlkshdvl
 
